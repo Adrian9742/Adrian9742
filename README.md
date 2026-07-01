@@ -39,4 +39,4 @@ Gosto de construir projetos práticos para aprender e resolver problemas reais �
 
 ---
 
-📫 [adrian.souza@realmetais.com.br](mailto:adrian.souza@realmetais.com.br)
+📫 [adriansouzalr7@gmail.com](mailto:adriansouzalr7@gmail.com)
